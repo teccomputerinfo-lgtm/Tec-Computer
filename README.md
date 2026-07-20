@@ -1,2 +1,0 @@
-# Tec-Computer
-Job page
